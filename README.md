@@ -1,9 +1,9 @@
 # 💫 Hakkımda:
-🔭 Araştırmayı seven bir bireyim<br>👯 Ekip işlerine ve ekibime uyum sağlayabilirim<br>🤝 İnsanlarla çok çabuk kaynaşıp anlaşabilirim<br>🌱 Öğrenmeye oldukça açık biriyim<br>💬 11.05.2000 tarihinde kayserinin bünyan ilçesinde doğdum.Adım SAMED TANRIÖVER. Sorunları çözme yeteneğine, analitik düşünmeye, ekip çalışmasına ve iletişim becerilerine sahibim. Müşteri odaklı yaklaşımım, proaktif tutumum ve hızlı öğrenme kabiliyetimle öne çıkıyorum. Kendimi sürekli geliştirmek, yeni şeyler öğrenmek ve başarıya ulaşmak için motivasyonlu bir bireyim.Araştırmayı çok seven bir yapım var. Bilgisayara olan merakım 14 yaşında başladı bu yaşlarda bilgisayar ile haşır neşir olmaya başladım. Ülkeme ve ülkemde bulunan vatandaşlara yararlı olabilecek her türlü yazılımsal projeye destek vermeye ve sizlerle birlikte çalışmaya hazırım.<br><br>⚡ Hobiler:
-Araba Sürmek
-Mix & Mastering
-Kodlama Yapmak<br>
-Makale Okumak
+🔭 Araştırmayı seven bir bireyim<br>👯 Ekip işlerine ve ekibime uyum sağlayabilirim<br>🤝 İnsanlarla çok çabuk kaynaşıp anlaşabilirim<br>🌱 Öğrenmeye oldukça açık biriyim<br>💬 11.05.2000 tarihinde kayserinin bünyan ilçesinde doğdum.Adım SAMED TANRIÖVER. Sorunları çözme yeteneğine, analitik düşünmeye, ekip çalışmasına ve iletişim becerilerine sahibim. Müşteri odaklı yaklaşımım, proaktif tutumum ve hızlı öğrenme kabiliyetimle öne çıkıyorum. Kendimi sürekli geliştirmek, yeni şeyler öğrenmek ve başarıya ulaşmak için motivasyonlu bir bireyim.Araştırmayı çok seven bir yapım var. Bilgisayara olan merakım 14 yaşında başladı bu yaşlarda bilgisayar ile haşır neşir olmaya başladım. Ülkeme ve ülkemde bulunan vatandaşlara yararlı olabilecek her türlü yazılımsal projeye destek vermeye ve sizlerle birlikte çalışmaya hazırım.<br><br>⚡ Hobiler:<br>
+<br>Araba Sürmek
+<br>Mix & Mastering
+<br>Kodlama Yapmak<br>
+<br>Makale Okumak
 Şiir Okumak & Yazmak
 
 
