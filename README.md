@@ -3,7 +3,7 @@
 <br>Araba Sürmek
 <br>Mix & Mastering
 <br>Kodlama Yapmak<br>
-<br>Makale Okumak
+Makale Okumak<br>
 Şiir Okumak & Yazmak
 
 
