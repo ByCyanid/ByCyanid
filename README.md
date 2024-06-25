@@ -4,7 +4,7 @@
 <br>Mix & Mastering
 <br>Kodlama Yapmak<br>
 Makale Okumak<br>
-Şiir Okumak & Yazmak
+Rap Müzik
 
 
 ## 🌐 Sosyal:
