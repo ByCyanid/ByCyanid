@@ -1,5 +1,24 @@
-# 💫 Hakkımda:
-🔭 Araştırmayı seven bir bireyim<br>👯 Ekip işlerine ve ekibime uyum sağlayabilirim<br>🤝 İnsanlarla çok çabuk kaynaşıp anlaşabilirim<br>🌱 Öğrenmeye oldukça açık biriyim<br>💬 11.05.2000 tarihinde kayserinin bünyan ilçesinde doğdum.Adım SAMED TANRIÖVER. Sorunları çözme yeteneğine, analitik düşünmeye, ekip çalışmasına ve iletişim becerilerine sahibim. Müşteri odaklı yaklaşımım, proaktif tutumum ve hızlı öğrenme kabiliyetimle öne çıkıyorum. Kendimi sürekli geliştirmek, yeni şeyler öğrenmek ve başarıya ulaşmak için motivasyonlu bir bireyim.Araştırmayı çok seven bir yapım var. Bilgisayara olan merakım 14 yaşında başladı bu yaşlarda bilgisayar ile haşır neşir olmaya başladım. Ülkeme ve ülkemde bulunan vatandaşlara yararlı olabilecek her türlü yazılımsal projeye destek vermeye ve sizlerle birlikte çalışmaya hazırım.<br><br>⚡ Hobiler:<br>
+👋 Merhaba!
+Ben Samed Tanrıöver, 11 Mayıs 2000'de Kayseri'nin Bünyan ilçesinde doğdum. Sorun çözme, analitik düşünme, ekip çalışması ve iletişim becerilerimle öne çıkıyorum. Proaktif bir yaklaşıma, hızlı öğrenme kabiliyetine ve müşteri odaklı bir tutuma sahibim. Sürekli kendimi geliştirmeye, yeni bilgiler edinmeye ve başarıya ulaşmaya motiveyim.
+
+🎯 Hedeflerim ve Değerlerim:
+
+Araştırmaya olan tutkum, beni her zaman en iyi çözümleri bulmaya yönlendiriyor.
+Bilgisayara olan ilgim, 14 yaşında başladı ve o günden beri yazılım ve teknolojiyle iç içeyim.
+Ülkeme ve vatandaşlara faydalı olabilecek projelere katkı sağlamaya istekliyim.
+💼 Yetkinliklerim:
+
+Ekip çalışmasına uyum sağlama ve etkin iletişim kurma becerisi.
+Zorluklar karşısında hızlı ve etkili çözümler üretme yeteneği.
+Proje geliştirme süreçlerinde yüksek motivasyon ve sorumluluk bilinci.
+🚀 Vizyonum:
+Yazılım dünyasında yenilikçi projelerle fark yaratmak ve sürekli öğrenerek değer katmak. Teknolojiyle insan hayatını kolaylaştıran çözümler üretmek için sizinle çalışmaya hazırım.
+
+🌱 Kişisel Özelliklerim:
+
+Araştırmayı seven ve sürekli kendini geliştiren bir bireyim.
+İnsanlarla kolayca kaynaşabilir ve güçlü bir ekip uyumu sağlayabilirim.
+Öğrenmeye açık yapımla her zaman yeni bilgiler edinmeye ve kendimi güncel tutmaya özen gösteririm.<br><br>⚡ Hobiler:<br>
 <br>Araba Sürmek
 <br>Mix & Mastering
 <br>Kodlama Yapmak<br>
