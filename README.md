@@ -5,7 +5,7 @@ Ben Samed Tanrıöver, 11 Mayıs 2000'de Kayseri'nin Bünyan ilçesinde doğdum.
 
 Araştırmaya olan tutkum, beni her zaman en iyi çözümleri bulmaya yönlendiriyor.
 Bilgisayara olan ilgim, 14 yaşında başladı ve o günden beri yazılım ve teknolojiyle iç içeyim.
-Ülkeme ve vatandaşlara faydalı olabilecek projelere katkı sağlamaya istekliyim.<br>
+Ülkeme ve vatandaşlara faydalı olabilecek projelere katkı sağlamaya istekliyim.<br><br>
 💼 Yetkinliklerim:
 
 Ekip çalışmasına uyum sağlama ve etkin iletişim kurma becerisi.
