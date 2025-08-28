@@ -12,7 +12,7 @@ Ekip çalışmasına uyum sağlama ve etkin iletişim kurma becerisi.
 Zorluklar karşısında hızlı ve etkili çözümler üretme yeteneği.
 Proje geliştirme süreçlerinde yüksek motivasyon ve sorumluluk bilinci.<br><br>
 🚀 Vizyonum:
-Yazılım dünyasında yenilikçi projelerle fark yaratmak ve sürekli öğrenerek değer katmak. Teknolojiyle insan hayatını kolaylaştıran çözümler üretmek için sizinle çalışmaya hazırım.
+Yazılım dünyasında web development alanında yenilikçi projelerle fark yaratmak ve sürekli öğrenerek kendime ve ülkeme değer katmak. Teknolojiyle insan hayatını kolaylaştıran çözümler üretmek için sizinle çalışmaya hazırım.
 
 🌱 Kişisel Özelliklerim:
 
